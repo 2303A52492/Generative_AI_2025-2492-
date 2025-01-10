@@ -1,2 +1,3 @@
 # Generative_AI_2025-2492
-local
+<br>
+2-2 SEMISTER 2025
